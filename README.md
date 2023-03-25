@@ -1,6 +1,6 @@
 # hi there ^-^
 
-![shoushaTR on Floptropica State Department](https://raw.githubusercontent.com/shoushaTR/shoushaTR/main.header.png)  
+![uwu](https://raw.githubusercontent.com/shoushaTR/shoushaTR/main.header.png)  
 
 um, I- I'm new to this 😭  
 but i'm uwu 🥺👉👈  
